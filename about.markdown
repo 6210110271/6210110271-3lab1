@@ -10,7 +10,7 @@ Welcome to 6210110271
 
 คณะวิศวกรรมศาสตร์ มหาวิทยาลัยสงขลานครินทร์
 
-![](https://derpicdn.net/img/view/2018/8/17/1809197.png)
+![](https://c.tenor.com/OtbB-lJRWlgAAAAd/chinese-man-explaining-meme.gif)
 
 > My favorite pony ♥
 [yay](https://youtu.be/puvstNGKSRI)
